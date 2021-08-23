@@ -1,0 +1,2 @@
+- 👋 Hello word! I’m Késsia
+- Franca, SP Brazil
